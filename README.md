@@ -1,0 +1,2 @@
+# sidka
+for maximal mnenonik
